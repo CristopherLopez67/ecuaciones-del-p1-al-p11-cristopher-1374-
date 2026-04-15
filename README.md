@@ -1,0 +1,1 @@
+# ecuaciones-del-p1-al-p11-cristopher-1374-
